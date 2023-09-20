@@ -35,3 +35,6 @@ Aʟʟᴏᴡ ᴍᴇ ᴛᴏ ɪɴᴛʀᴏᴅᴜᴄᴇ ʏᴏᴜ ᴛᴏ **Rᴇᴋɪɴ
 **ᴛᴏ ʟᴇᴀʀɴ ᴍᴏʀᴇ ᴀʙᴏᴜᴛ RYF ᴘʟᴇᴀsᴇ ᴠɪsɪᴛ: [RᴇᴋɪɴᴅʟᴇYᴏᴜʀFᴀɪᴛʜ](https://linktr.ee/RekindleYourFaith).**
 
 ## Dɪsᴄᴏᴠᴇʀ ᴛʜᴇ ᴇxǫᴜɪsɪᴛᴇ Nᴏᴛɪᴏɴ ᴛᴇᴍᴘʟᴀᴛᴇ ʙʏ [ᴄʟɪᴄᴋɪɴɢ ʜᴇʀᴇ.](https://0xhriday.notion.site/A-M-s-W-S-0ea72fa1e36840bcbe98193960b3508f?pvs=4)
+
+![B1D349F2-3396-450C-AF6C-95518D6FB505](https://github.com/0xHriday/Project-RYF/assets/97101518/e0d76377-26ca-422d-b76b-cea29293dd1b)
+
